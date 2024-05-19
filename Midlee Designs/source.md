@@ -1,28 +1,22 @@
-
-
-![Midlee Designs](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/GetJoyCo/GetJoy.jpeg "Midlee Designs")
-
-Original source: [Midlee Designs](hhttps://getjoyfood.com/pages/nutrition-plan)
+![Midlee Designs](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Midlee%20Designs/MidleeDesigns.jpeg "Midlee Designs")
+Original source: [Midlee Designs](https://midleedesigns.com/products/santas-belt-christmas-dog-bed)
 
 </br>
 
-![Midlee Designs](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/GetJoyCo/GetJoy2.jpg "Midlee Designs")
-
-Original source: [Midlee Designs](https://www.instagram.com/p/C3s8ekKPzYp/?img_index=5)
-
-</br>
-
-![Midlee Designs](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/GetJoyCo/GetJoy3.jpeg "Midlee Designs")
-
-Original source: [Midlee Designs](https://getjoyfood.com/blogs/the-daily-scoop/what-to-expect-when-you-adopt-a-senior-dog)
+![Midlee Designs](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Midlee%20Designs/MidleeDesigns2.jpeg "Midlee Designs")
+Original source: [Midlee Designs](https://midleedesigns.com/products/midlee-gift-box-christmas-squares-sugar-cookie-dog-toy)
 
 </br>
 
-![Midlee Designs](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/GetJoyCo/GetJoy4.png "Get Joy Co")
-![Get Joy Co](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/GetJoyCo/GetJoy5.png "Get Joy Co")
-![Get Joy Co](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/GetJoyCo/GetJoy6.png "Get Joy Co")
-Original source: [Get Joy Co](Targeted Ads)
+![Midlee Designs](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Midlee%20Designs/MidleeDesigns4.jpeg "Midlee Designs")
+Original source: [Midlee Designs](https://midleedesigns.com/products/midlee-gift-box-christmas-squares-sugar-cookie-dog-toy)
 
-https://midleedesigns.com/products/midlee-gift-box-christmas-squares-sugar-cookie-dog-toy
-https://midleedesigns.com/products/santas-belt-christmas-dog-bed
-https://midleedesigns.com/products/midlee-elf-shoe-sugar-cookie-dog-toy-small
+</br>
+
+PJ Cameos
+![Midlee Designs](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Midlee%20Designs/MidleeDesigns3.jpeg "Get Joy Co")
+Original source: [Get Joy Co](https://midleedesigns.com/products/midlee-gift-box-christmas-squares-sugar-cookie-dog-toy)
+</br>
+![Get Joy Co](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Midlee%20Designs/MidleeDesigns5.jpeg "Get Joy Co")
+Original source: [Get Joy Co](https://midleedesigns.com/products/midlee-elf-shoe-sugar-cookie-dog-toy-small)
+

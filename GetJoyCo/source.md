@@ -1,17 +1,14 @@
 ![Get Joy Co](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/GetJoyCo/GetJoy.jpeg "Get Joy Co")
-
 Original source: [Get Joy Co](hhttps://getjoyfood.com/pages/nutrition-plan)
 
 </br>
 
 ![Get Joy Co](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/GetJoyCo/GetJoy2.jpg "Get Joy Co")
-
 Original source: [Get Joy Co](https://www.instagram.com/p/C3s8ekKPzYp/?img_index=5)
 
 </br>
 
 ![Get Joy Co](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/GetJoyCo/GetJoy3.jpeg "Get Joy Co")
-
 Original source: [Get Joy Co](https://getjoyfood.com/blogs/the-daily-scoop/what-to-expect-when-you-adopt-a-senior-dog)
 
 </br>
