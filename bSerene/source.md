@@ -1,13 +1,9 @@
-https://scientiapet.com/collections/dog-collection/products/bserene-valerian-calming-spot-on-for-dogs-3-applications
-https://scientiapet.com/collections/dog-collection/products/bserene-pheromone-calming-spray-for-dogs-60-ml
-
-
-![Dogslanding](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Dogslanding/Dogslanding.jpeg "Dogslanding")
-![Dogslanding](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Dogslanding/Dogslanding2.jpeg "Dogslanding")
-Original source: [Dogslanding](https://thedogslanding.com/products/dogslanding%E2%84%A2-calming-pawpartner-patent-pending)
+![bSerene](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/bSerene/bSerene.jpeg "bSerene")
+![bSerene](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/bSerene/bSerene2.jpeg "bSerene")
+Original source: [bSerene](https://scientiapet.com/collections/dog-collection/products/bserene-valerian-calming-spot-on-for-dogs-3-applications)
 
 </br>
 
-![Dogslanding](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Dogslanding/Dogslanding3.jpeg "Dogslanding")
-![Dogslanding](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Dogslanding/Dogslanding.jpeg "Dogslanding")
-Original source: [Dogslanding](https://thedogslanding.com/products/dogslanding%E2%84%A2-calming-pawpartner-patent-pending)
+![bSerene](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/bSerene/bSeren3.jpeg "bSerene")
+![bSerene](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/bSerene/bSerene4.png "bSerene")
+Original source: [bSerene](https://scientiapet.com/collections/dog-collection/products/bserene-pheromone-calming-spray-for-dogs-60-ml)
