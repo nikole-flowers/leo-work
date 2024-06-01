@@ -13,6 +13,11 @@ Original source: [Get Joy Co](https://getjoyfood.com/blogs/the-daily-scoop/what-
 
 </br>
 
+![Get Joy Co](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/GetJoyCo/GetJoy7.jpg "Get Joy Co")
+Original source: [Get Joy Co](https://www.aarp.org/benefits-discounts/members-only-access/info-2024/guide-to-dog-food.html)
+
+</br>
+
 ![Get Joy Co](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/GetJoyCo/GetJoy4.png "Get Joy Co")
 ![Get Joy Co](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/GetJoyCo/GetJoy5.png "Get Joy Co")
 ![Get Joy Co](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/GetJoyCo/GetJoy6.png "Get Joy Co")
