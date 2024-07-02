@@ -1,6 +1,6 @@
 ![HoldOn Bags](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/HoldOnBags/HoldOnBags.jpeg "HoldOn Bags")
-![HoldOn Bags](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/HoldOnBags/HoldOnBags2.jpeg "HoldOn Bags")
-![HoldOn Bags](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/HoldOnBags/HoldOnBags3.jpg "HoldOn Bags")
+![HoldOn Bags](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/HoldOnBags/HoldOnBags2.jpg "HoldOn Bags")
+![HoldOn Bags](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/HoldOnBags/HoldOnBags3.jpeg "HoldOn Bags")
 Original source: [HoldOn Bags](https://holdonbags.com/products/compostable-pet-waste-bags)
 
 ![HoldOn Bags](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/HoldOnBags/HoldOnBags4.png "HoldOn Bags")
