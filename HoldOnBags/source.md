@@ -7,6 +7,4 @@ Original source: [HoldOn Bags](https://holdonbags.com/products/compostable-pet-w
 ![HoldOn Bags](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/HoldOnBags/HoldOnBags5.png "HoldOn Bags")
 ![HoldOn Bags](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/HoldOnBags/HoldOnBags6.png "HoldOn Bags")
 ![HoldOn Bags](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/HoldOnBags/HoldOnBags7.png "HoldOn Bags")
-![HoldOn Bags](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/HoldOnBags/HoldOnBags8.png "HoldOn Bags")
-![HoldOn Bags](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/HoldOnBags/HoldOnBags9.png "HoldOn Bags")
 Original source: [HoldOn Bags](Instagram Ads))
