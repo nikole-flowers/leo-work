@@ -1,3 +1,3 @@
-![The Deluxe Pup](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/TheDeluxePup/TDP.jpg "Third Wheel Dog")
-![The Deluxe Pup](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/TheDeluxePup/TDP2.jpg "Third Wheel Dog")
-Original source: [The Deluxe Pupg](https://thedeluxepup.com/collections/little-life/products/beverlycollar-biscoff)
+![The Deluxe Pup](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/TheDeluxePup/TDP.jpg "The Deluxe Pup")
+![The Deluxe Pup](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/TheDeluxePup/TDP2.jpg "The Deluxe Pup")
+Original source: [The Deluxe Pup](https://thedeluxepup.com/collections/little-life/products/beverlycollar-biscoff)
