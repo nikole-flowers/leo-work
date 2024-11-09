@@ -1,9 +1,4 @@
-![bSerene](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/bSerene/bSerene.jpeg "bSerene")
-![bSerene](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/bSerene/bSerene2.jpeg "bSerene")
-Original source: [bSerene](https://scientiapet.com/collections/dog-collection/products/bserene-valerian-calming-spot-on-for-dogs-3-applications)
-
-</br>
-
-![bSerene](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/bSerene/bSeren3.jpeg "bSerene")
-![bSerene](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/bSerene/bSerene4.png "bSerene")
-Original source: [bSerene](https://scientiapet.com/collections/dog-collection/products/bserene-pheromone-calming-spray-for-dogs-60-ml)
+![Baba Buddies](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/BabaBuddies/BBB.jpeg "Baba Buddies")
+![Baba Buddies](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/BabaBuddies/BBB2.jpeg "Baba Buddies")
+![Baba Buddies](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/BabaBuddies/BBB3.png "Baba Buddies")
+Original source: [Baba Buddies](https://a.co/d/g2dguCu)

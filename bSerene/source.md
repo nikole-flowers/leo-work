@@ -4,6 +4,6 @@ Original source: [bSerene](https://scientiapet.com/collections/dog-collection/pr
 
 </br>
 
-![bSerene](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/bSerene/bSeren3.jpeg "bSerene")
+![bSerene](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/bSerene/bSerene3.jpeg "bSerene")
 ![bSerene](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/bSerene/bSerene4.png "bSerene")
 Original source: [bSerene](https://scientiapet.com/collections/dog-collection/products/bserene-pheromone-calming-spray-for-dogs-60-ml)
