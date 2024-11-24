@@ -13,8 +13,8 @@ Original source: [Nandog Pet Gear](https://www.amazon.com/stores/page/3A64E96C-9
 
 </br>
 
-![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog3.jpeg "Nandog Pet Gear"){ width=50% } 
-![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog4.jpeg "Nandog Pet Gear") Original source: [Nandog Pet Gear](https://www.nandog.com/collections/dog-car-seats/products/large-black-vegan-leather-car-seat-2-0){ width=50% }
+![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog3.jpeg "Nandog Pet Gear")
+![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog4.jpeg "Nandog Pet Gear") Original source: [Nandog Pet Gear](https://www.nandog.com/collections/dog-car-seats/products/large-black-vegan-leather-car-seat-2-0)
 
 </br>
 
