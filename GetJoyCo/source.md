@@ -11,11 +11,13 @@ Original source: [Get Joy Co](https://www.instagram.com/p/C3s8ekKPzYp/?img_index
 </br>
 
 ![Get Joy Co](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/GetJoyCo/GetJoy3.jpeg "Get Joy Co")
+</br>
 Original source: [Get Joy Co](https://getjoyfood.com/blogs/the-daily-scoop/what-to-expect-when-you-adopt-a-senior-dog)
 
 </br>
 
 ![Get Joy Co](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/GetJoyCo/GetJoy7.jpg "Get Joy Co")
+</br>
 Original source: [Get Joy Co](https://www.aarp.org/benefits-discounts/members-only-access/info-2024/guide-to-dog-food.html)
 
 </br>

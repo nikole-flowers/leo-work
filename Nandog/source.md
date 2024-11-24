@@ -1,60 +1,73 @@
 ![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog.gif "Nandog Pet Gear")
+</br>
 Original source: [Nandog Pet Gear](https://www.nandog.com/)
 
 </br>
 
 ![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog.jpeg "Nandog Pet Gear")
+</br>
 Original source: [Nandog Pet Gear](https://www.nandog.com/)
 
 </br>
 
 ![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog2.jpg "Nandog Pet Gear")
+</br>
 Original source: [Nandog Pet Gear](https://www.amazon.com/stores/page/3A64E96C-97CE-4EAA-936B-B8617C00E853?ingress=2&visitId=0d81ff56-2d7f-4a58-811f-f669ee0d7870&store_ref=bl_ast_dp_brandLogo_sto&ref_=ast_bln)
 
 </br>
 
 ![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog3.jpeg "Nandog Pet Gear")
-![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog4.jpeg "Nandog Pet Gear") Original source: [Nandog Pet Gear](https://www.nandog.com/collections/dog-car-seats/products/large-black-vegan-leather-car-seat-2-0)
+![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog4.jpeg "Nandog Pet Gear") 
+</br>
+Original source: [Nandog Pet Gear](https://www.nandog.com/collections/dog-car-seats/products/large-black-vegan-leather-car-seat-2-0)
 
 </br>
 
 ![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog5.jpeg "Nandog Pet Gear")
+</br>
 Original source: [Nandog Pet Gear](https://www.nandog.com/collections/dog-beds/products/banana-cat-dog-microplush-bed)
 
 </br>
 
 ![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog6.jpeg "Nandog Pet Gear")
 ![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog7.jpeg "Nandog Pet Gear")
+</br>
 Original source: [Nandog Pet Gear](https://www.nandog.com/collections/dog-beds/products/copy-of-dog-car-seat-light-grey-large)
 
 </br>
 
 ![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog8.jpeg "Nandog Pet Gear")
+</br>
 Original source: [Nandog Pet Gear](https://www.nandog.com/collections/dog-beds/products/copy-of-prive-collection-quilted-vegan-leather-grey)
 
 </br>
 
 ![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog10.jpeg "Nandog Pet Gear")
+</br>
 Original source: [Nandog Pet Gear](https://www.nandog.com/collections/dog-beds/products/prive-collection-quilted-vegan-leather-black)
 
 </br>
 
 ![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog11.jpeg "Nandog Pet Gear")
+</br>
 Original source: [Nandog Pet Gear](https://www.nandog.com/products/cloud-2-0-reversible-dog-cat-bed-chinchilla)
 
 </br>
 
 ![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog12.png "Nandog Pet Gear")
+</br>
 Original source: [Nandog Pet Gear](https://www.nandog.com/)
 
 </br>
 
 ![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog14.png "Nandog Pet Gear")
+</br>
 Original source: [Nandog Pet Gear](https://www.nandog.com/)
 
 </br>
 
 ![Nandog Pet Gear](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/Nandog/Nandog15.jpg "Nandog Pet Gear")
+</br>
 Original source: [Nandog Pet Gear](https://www.amazon.com/stores/NANDOGPETGEAR/page/B01A42BF-C0B9-4C65-B49F-0B743A86484F?ref_=ast_bln&store_ref=bl_ast_dp_brandLogo_sto)
 
 </br>
