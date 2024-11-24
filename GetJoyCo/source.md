@@ -1,4 +1,5 @@
 ![Get Joy Co](https://raw.githubusercontent.com/nikole-flowers/leo-work/main/GetJoyCo/GetJoy.jpeg "Get Joy Co")
+</br>
 Original source: [Get Joy Co](https://getjoyfood.com/pages/nutrition-plan)
 
 </br>
